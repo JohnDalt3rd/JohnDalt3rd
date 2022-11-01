@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JohnDalt3rd
 - 👀 I’m interested in ... writing codes for casino slot machines
 - 🌱 I’m currently learning ...nothing
-- 💞️ I’m looking to collaborate on ... anything nat a beginner's level
+- 💞️ I’m looking to collaborate on ... anything nat a beginner's level binance.us advertising affiliate contracts
 - 📫 How to reach me ... dj8599240@gmail.com (775)292-7796
 
 <!---
